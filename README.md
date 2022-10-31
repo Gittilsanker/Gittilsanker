@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on start up bootstrapping
 
-📫 Reach me on Twitter or LinkedIn
+📫 Reach me on Twitter or LinkedIn or at https://effimag.com 
 
 <!---
 Gittilsanker/Gittilsanker is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
